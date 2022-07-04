@@ -85,7 +85,7 @@ The key to performing under pressure at the highest possible level is preparatio
 Naysayers are often locked into the past and thus unwittingly locking themselves out of the future.  Bill Walsh invented "The West Coast Offense" and shared his lessons about it:
 
 1. Success doesn't care which road you take to get to its doorstep
-2. Be bold.  Remove feat of the unknown, ie. change from your mind
+2. Be bold.  Remove fear of the unknown, ie. change from your mind
 a. Respect the past without clinging to it
 b. "That's the way we've always done it" is the mantra of a team setting itself up to lose
 c. Innovators aren't afraid of change
