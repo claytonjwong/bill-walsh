@@ -74,7 +74,6 @@ A leader's job is to facilitate a battlefield-like sense of camaraderie amoung t
 
 Achieving success takes patience, time, and fortitude.  The commitment to, and execution of, the specific actions and attitudes embodied in Bill Walsh's standard of performance were crucial to creating and cementing a level of professionalism, a solid foundation upon which future success could be constructed.  There was no showboating allowed after a touchdown, no taunting of opponents, no demonstrations to attract attention to oneself, because one individual shouldn't take credit for what the whole team had done.  People want to believe they're part of something special, an organization that's exceptional.  The culture precedes positive results.  Champions behave like champions before they're champions; they have a winning standard of performance before they're winners.
 
-
 #### Seek to Be Near the Summit
 
 The standard of performance served as a compass that pointed to true north.  Consistent effort is a consistent challenge.  There's an ebb and flow, an up and down, in every significant endeavor at every level.  The high standards for actions and attitudes within Bill Walsh's organization never wavered - regardless of whether his team was winning or losing.
