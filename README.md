@@ -19,7 +19,7 @@ A resolute and resourceful leader understands that there are a multitude of mean
 
 Pursuing your ambitions, especially those of any magnitude, can be grueling and hazardous, and produce agonizing failure along the way, but achieving those goals is among life's most gratifying and thrilling experiences.  The ability to survive and overcome the former to attain the latter is a fundamental difference between winners are losers.
 
-Individuals who previal have one thing in common besides success, it is failure - and their ability to overcome it.
+Individuals who prevail have one thing in common besides success, it is failure - and their ability to overcome it.
 
 ## Part I: My Standard of Performance: An Environment of Excellence
 
