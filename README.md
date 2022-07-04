@@ -80,7 +80,7 @@ The standard of performance served as a compass that pointed to true north.  Con
 
 The key to performing under pressure at the highest possible level is preparation in the context of your standard of performance.  With that comes the knowledge that you can step into that high-pressure arena and go about your wor while the score works itself out.  With continual preparation via practice, we acquire the skills and proficiencies to work through extreme pressure and prevail.
 
-## Part II: Success is not spelled GENIOUS - Innovation, Planning, and Common Sense
+## Part II: Success is not spelled GENIUS - Innovation, Planning, and Common Sense
 
 Naysayers are often locked into the past and thus unwittingly locking themselves out of the future.  Bill Walsh invented "The West Coast Offense" and shared his lessons about it:
 
