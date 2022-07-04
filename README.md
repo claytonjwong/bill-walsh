@@ -132,4 +132,4 @@ In hindsight, a commonsense mind can parse evidence that offers clues to why thi
 
 Bill Walsh was smart enough, strong-willed enough, to get rid of talented peope if they were contributors to a negative organizational culture - not team players.
 
-Bill Walsh prized communication and understood that all the knowledge in the world meant little if we cannot communication effectively.
+Bill Walsh prized communication and understood that all the knowledge in the world meant little if we cannot communicate effectively.
