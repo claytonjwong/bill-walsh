@@ -79,3 +79,57 @@ Achieving success takes patience, time, and fortitude.  The commitment to, and e
 The standard of performance served as a compass that pointed to true north.  Consistent effort is a consistent challenge.  There's an ebb and flow, an up and down, in every significant endeavor at every level.  The high standards for actions and attitudes within Bill Walsh's organization never wavered - regardless of whether his team was winning or losing.
 
 The key to performing under pressure at the highest possible level is preparation in the context of your standard of performance.  With that comes the knowledge that you can step into that high-pressure arena and go about your wor while the score works itself out.  With continual preparation via practice, we acquire the skills and proficiencies to work through extreme pressure and prevail.
+
+## Part II: Success is not spelled GENIOUS - Innovation, Planning, and Common Sense
+
+Naysayers are often locked into the past and thus unwittingly locking themselves out of the future.  Bill Walsh invented "The West Coast Offense" and shared his lessons about it:
+
+1. Success doesn't care which road you take to get to its doorstep
+2. Be bold.  Remove feat of the unknown, ie. change from your mind
+a. Respect the past without clinging to it
+b. "That's the way we've always done it" is the mantra of a team setting itself up to lose
+c. Innovators aren't afraid of change
+3. Desperation shouldn't drive innovation
+4. Be obsessive looking for the upside in the downside
+a. continually seek solutions to succeed
+
+### Share the Glory
+
+Give ample credit to those working with us.  Few thing offer greater return on less investment than praise - offering credit to someone in your organization who has stepped up and done the job.
+
+### Write Your Own Script for Success: Flying by the Seat of Your Pants (Is No Way to Travel)
+
+Having a well-though out plan ready to go in advance of a change in the weather is the key to success.  Making decisions off the top of our heads is a recipe for making bad decisions because we aren't at our best under extreme stress.  We cannot think as clearly or perform as well when engulfed by stress, anxiety, fear, tension, or turmoil.
+
+We must envision the future deeply and in detail, to creatively make the unforseeable foreseeable, and then write our script for the foreseeable.
+
+Knowing what to do under every foreseeable circumstance helps to alleviate anxiety and uncertainty because of the preconceived "game plan."
+
+Scripting provides a prepared, yet flexible method to navigate through turmoil, uncertainty, and stress.
+
+Contigency scripting provides a well-thought-out basis for situational decision making and action; by analzying, planning, and rehearsing in advance you can make a rational decision, the best choice for the situation at hand.  Everything has to be strategized; we have to know where we're going to come out before we go in.  Otherwise we lose.  Scripting and strategizing are simply two different words for fair- and foul-weather leadership.  It brings clarity to confusion situations.
+
+The military is known for doing this - war gaming, thinking through its response to all contingencies.  The more thorough, the more extensive, the more rehearsed, the better you perform under the pressure of any situation that calls for an immediate decision.
+
+Planning for the future shouldn't be postponed until the future arrives.  Scripting allowed Bill Walsh to take randomness and stress out of the decision-making process.  The result was a very adaptable but intelligent plan for the future.
+
+### Control What You Can Control: Let the Score Take Care of Itself
+
+1. Flying by the seat of our pants precedes crashing by the seat of our pants
+2. When we prepare for anything, we are ready for anything
+3. Create a crisis-management team that is smart enough to anticipate and plan for crises
+4. All personall must recognize the organization is adaptive and dynamic in facing unstable "weather"
+5. Be resolute in our vision of the future and contingent plans to get where we want to go
+6. Our version of "scripting" allows us to respond appropriately in a professional manner; we act like leaders
+
+### The Archaeology of Leadership: Seek Reward in the Ruins
+
+When an organization falls short of a goal, the letdown can be so severe we're blinded to substantive information indicating that success may be closer than we would imagine.
+
+In hindsight, a commonsense mind can parse evidence that offers clues to why things went as they did - both good and bad.  In planning for a successful future, the past can show us how to get there.  Too often we avert our gaze when the past is unpleasant.  We don't want to go there again, even though it contains the road map to a bright future.
+
+### Team Communication Matters
+
+Bill Walsh was smart enough, strong-willed enough, to get rid of talented peope if they were contributors to a negative organizational culture - not team players.
+
+Bill Walsh prized communication and understood that all the knowledge in the world meant little if we cannot communication effectively.
