@@ -95,7 +95,7 @@ a. continually seek solutions to succeed
 
 ### Share the Glory
 
-Give ample credit to those working with us.  Few thing offer greater return on less investment than praise - offering credit to someone in your organization who has stepped up and done the job.
+Give ample credit to those working with us.  Few things offer greater return on less investment than praise - offering credit to someone in your organization who has stepped up and done the job.
 
 ### Write Your Own Script for Success: Flying by the Seat of Your Pants (Is No Way to Travel)
 
