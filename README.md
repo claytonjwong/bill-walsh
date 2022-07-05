@@ -36,7 +36,7 @@ When we stand and overcome a significant setback, we find an increasing inner co
 1. Expect defeat
 2. Stop looking backwards and dwelling on defeat
 3. Allow appropriate recovery time from defeat
-4. Tell yourself: "I am going ot stand and fight again" knowing that often when things are at their worse, you're closer than you can imagine to success
+4. Tell yourself: "I am going to stand and fight again" knowing that often when things are at their worse, you're closer than you can imagine to success
 5. Begin planning for the next step: focus on the fix
 
 
