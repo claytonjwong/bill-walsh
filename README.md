@@ -133,3 +133,65 @@ In hindsight, a commonsense mind can parse evidence that offers clues to why thi
 Bill Walsh was smart enough, strong-willed enough, to get rid of talented peope if they were contributors to a negative organizational culture - not team players.
 
 Bill Walsh prized communication and understood that all the knowledge in the world meant little if we cannot communicate effectively.
+
+
+## Part III: Fundamentals of Leadership: Concepts, Conceits, and Conclusions
+
+Declaring "I am the leader!" has no value unless we also have the command skills necessary to be the leader.
+
+### Common Denominator of Leadership: Strength of Will
+
+The dictatorial type of leadership may result in quick gains, but the cumulative effects of bullying people, creating an environment of ongoing fear, panic, and intimidation, are a situation where employees become increasingly tuned out and immune to all of the leaders noise.
+
+🙁 The "buddy" system: those who aren't "buddies" inevitably begin to feel like second class citizens, which usually leads to the creation of a second-class organization.
+
+🙂 The leader who will not be denied, who has expertise coupled with strength of will, is going to prevail.  They simply would not quit in their effort to install their own system, to push forward with their plan, not someone else's or a committee's.  All successful leaders know where they want to go, figure out a way to get there, and then move forward with absolute determination.  There is an inner compulsion, obsession, to get it done the way they want it done even if the person cost is high.  You may be standing alone.  That is when you find out if you're a leader.  Leaders are paid to make a decsion.  The difference between offering an opinion and making a decision is the difference between working for the leader and being the leader. (Note: there's also a time for a leader to admit when they are wrong.  It is unexcusable to fail because the leader is unwilling to admit their way was the wrong way and that a change of course is their own path to victory)
+
+* A defining characteristic of a good leader is the conviction that he or she can make a positive difference, can prevail even when the odds are stack against him or her.  A successful leader is not easily swayed from this self-belief.
+* Sweat the right small stuff, sharp pencils don't translate to sharp performance
+  * we cannot be immersed in the meaningless at the expense of the meaningful
+  * stupid busywork, "There'll be plenty of time for pencils, parties, and socializing when I lose my job, because that's what's going to happen if I continue to avoid the hard and harsh realities of doing my job."
+    * Relieft from high anxieties, deep frustrations, and toxic emotions that go with the job can lead you to do everything *but* your job
+* Good leadership percolates down
+  * The trademark of a well-led organization is that it's virtually self-sustaining and self-directed, almost autonomous.  If your staff doesn't seem fully mobilized and energized until you enter the room, your leadership has not percolated down.
+    * Ultimately, you hope your ideas and way of doing things become so strongly entrenched that the organization performs as effectively without you as with you.
+    * This is a reliable indication of an effective leader, namely, one who creates a self-sustaining organization able to operate at the highest levels even when he or she leaves.
+    * The responsible leader of any company or organization aggressively seeks to ensure its continued prosperity.  It's the mark of forward-thinking leadership.
+
+### Joe Montana's Leadership
+
+* Never played favorites or believed that a person's reputation, status, or credentials entitled them to special treatment
+* Led with his own talent, quiet confidence, and unassuming demeanor
+* Didn't have to talk the talk because he walked the walk
+* Proved we don't need to shout, stomp, or strut to be a great leader
+* Just did the job and treated people right
+* Brought out the best in people
+
+### The Leverage of Language
+
+* When attempting to help someone attain that next level of performance, a supportive approach works better than a constantly negative or downside-focused approach.
+
+* If we're growing a garden, we need to pull out the weeds, but flowers will die if *all* we do is pick weeds.  They need sunshine and water.  People are the same.  They need criticism, but they also require positive and substantive language and information and true support to really blossom.
+
+* When your feedback is interpreted as a personal attack rather than a critique with positive intentions, you are going backward.
+
+* Constructive criticism is a powerful instrument essential for improving performance.  Positive support can be equally productive.  Used together by a skilled leader they become the key to maximum results.  Most of us seem to be more inclined to offer the negative.  I don't know why, but it's easier to criticize than to compliment.  Find the right mixture for optimum results.
+
+### Don't Beat Around the Bush (When Describing the Bush)
+
+* Clear communication
+* What is expected from employees in a manner that is unambiguous and comprehensive
+  * Employees can thrive in an environment where they know *exactly* what is expected of them, even when those expectations are very high.
+  * When it comes to telling people what is expected of them, don't be subtle, don't be coy, don't be vague.  What is your version of: "Gentlemen, *this* is football"?
+
+### Communication Creates Collaboration: Big Ears are Better Than Big Egos
+
+* collaboration is required more than ever these days to obtain optimal results
+  * only possible in the presence of quality communication
+    * free-flowing and robust exchange of information, ideas, and opinions
+    * having "big ears" (the skill of being a great listener) is the first law of good communication.
+      * The second law is "when you're not listening, ask good questions"
+    * communication is not a one-way street, not two-way or three-way; it's an every-way street
+      * this is challenging because its easier to tell somebody what to do than to listen to their suggestions and ideas
+* an individual doesn't need to be an expert to ask an intelligent question or offer useful insights; however, fear of being shunted aside or told, "That's a stupid question," keeps valid questions from being asked.
+  * work with people smart enough to have independent thinking, but strong enough to change their opinion when evidence or logic suggested it.
