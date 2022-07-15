@@ -194,4 +194,9 @@ The dictatorial type of leadership may result in quick gains, but the cumulative
     * communication is not a one-way street, not two-way or three-way; it's an every-way street
       * this is challenging because its easier to tell somebody what to do than to listen to their suggestions and ideas
 * an individual doesn't need to be an expert to ask an intelligent question or offer useful insights; however, fear of being shunted aside or told, "That's a stupid question," keeps valid questions from being asked.
-  * work with people smart enough to have independent thinking, but strong enough to change their opinion when evidence or logic suggested it.
+  * work with people smart enough to have independent thinking, but strong enough to change their opinion when evidence or logic suggested it.x
+
+### Create Uncertainty
+
+In a highly competitive environment, feeling comfortable is first cousin to being complacent.
+
