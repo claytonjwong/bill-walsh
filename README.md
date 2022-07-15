@@ -204,3 +204,20 @@ In a highly competitive environment, feeling comfortable is first cousin to bein
 
 Leadership requires poise under pressure.  An organization that witnesses its leader at loose ends when troubles arise will look elsewhere for strength and direction.
 
+### Teaching Defines Our Leadership
+
+> I came to understand over my years as an assistance coach that when the audience is bored, its not their fault.  And when they're plugged in and excited, it's because of you, the person in charge.
+
+#### 1. Passion is not just having a desire to do the job of teaching.
+* Being consumed with the process of developing the abilities of others is a fundamental source of personal joy.
+
+#### 2. Expertise is the inventory of knowledge and experience we possess on a particular subject.
+* we will not be followed when we are not at knowledgeable in what we do as we should be
+* a teacher gains expertise by seeking out great teachers, mentors, and other sources of information and wisdom in a relentless effort to add to his or her own knowledge.
+* actively seeking the counsel of those we repect  in our profession, as well as studing printed material and publications that we determine will provide pertinent input.
+
+#### 3. Communication is the ability to organize and then successfully convey our informed thoughts.
+* facial and body language
+* moving assuredly with energy
+
+⭐️ Companies led by good teachers, those with passion, expertise, communication skills, and persistence, do very well.
