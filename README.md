@@ -200,3 +200,7 @@ The dictatorial type of leadership may result in quick gains, but the cumulative
 
 In a highly competitive environment, feeling comfortable is first cousin to being complacent.
 
+### Play with Poise
+
+Leadership requires poise under pressure.  An organization that witnesses its leader at loose ends when troubles arise will look elsewhere for strength and direction.
+
