@@ -212,7 +212,7 @@ Leadership requires poise under pressure.  An organization that witnesses its le
 * Being consumed with the process of developing the abilities of others is a fundamental source of personal joy.
 
 #### 2. Expertise is the inventory of knowledge and experience we possess on a particular subject.
-* we will not be followed when we are not at knowledgeable in what we do as we should be
+* we will not be followed when we are not as knowledgeable in what we do as we should be
 * a teacher gains expertise by seeking out great teachers, mentors, and other sources of information and wisdom in a relentless effort to add to his or her own knowledge.
 * actively seeking the counsel of those we repect  in our profession, as well as studing printed material and publications that we determine will provide pertinent input.
 
